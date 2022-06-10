@@ -1,3 +1,3 @@
 - 👋 oi sou a @mariaclarasilvanogueira
-- 👀 estudante
+- 👀 sou estudante
 - ...
